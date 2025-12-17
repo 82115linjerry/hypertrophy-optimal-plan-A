@@ -1,1 +1,0 @@
-# hypertrophy-optimal-plan-A
